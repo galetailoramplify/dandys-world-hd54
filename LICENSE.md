@@ -1,4 +1,4 @@
-#  
+#  dandy's world Script new is the best dandy's world Script, featuring no cooldown and auto-collect. Safe and powerful for all your needs.
 
 
 
